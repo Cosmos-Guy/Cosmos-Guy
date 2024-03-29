@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Cosmos-Guy!
 - 👀 I’m interested in space and the universe.
 - 🌱 I’m currently learning Electronics.
-- 💞️ I’m looking to collaborate on Youtube and Github. My Youtube channel's name is Stellar Wisdom: https://www.youtube.com/@arnav-gadade
-- 📫 You can reach me at stelar.wisdom1404@gmail.com.
+- 💞️ I’m looking to collaborate on Youtube and Github. My Youtube channel's name is Gamer Hub: https://www.youtube.com/channel/UCUvUybAex97wDun0eJYf56w.
+- 📫 You can reach me at gaming.arena1404@gmail.com.
